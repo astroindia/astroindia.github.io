@@ -1,1 +1,0 @@
-# astroindia.github.io
